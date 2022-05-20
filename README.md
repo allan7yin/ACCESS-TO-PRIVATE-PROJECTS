@@ -1,2 +1,4 @@
 # ACCESS-TO-PRIVATE-PROJECTS
-Please read the README file for info on how to see private projects
+
+Some projects are private due to privact and academic reasons. If you wish to see them, please email allanyin17@gmail.com or call (647)208-0565 to receive an access code to view the projects.
+
